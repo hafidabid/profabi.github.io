@@ -1,3 +1,3 @@
 # hafidabi.github.io
 
-halo selamat datang, boleh add linkedin saya https://github.com/hafidabid/profabi.github.io
+halo selamat datang, boleh add linkedin saya https://www.linkedin.com/in/hafidabi/
